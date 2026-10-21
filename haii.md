@@ -15,8 +15,11 @@ FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and mo
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/2da06fb6-827f-45da-9b83-c1a8c4e500d6" />
 
 
-
+.⋆♱ im a super fun silly awesome guy and we should be friends...! 
 <!--
+
+
+
 **FamousProphett/famousprophett** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
