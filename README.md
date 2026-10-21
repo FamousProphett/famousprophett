@@ -23,7 +23,7 @@
 > .⋆♱ im a super fun silly awesome guy and we should be friends...! 
 
                                    
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e7adc5b8-d8ba-4aa3-b4be-f7d7e51bc07e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c5bb5522-0ef5-44c4-aca2-8b57e0ddc69e" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/76cb59e9-875d-4384-82a9-1853d5993970" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e7adc5b8-d8ba-4aa3-b4be-f7d7e51bc07e" />   <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c5bb5522-0ef5-44c4-aca2-8b57e0ddc69e" />  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/76cb59e9-875d-4384-82a9-1853d5993970" />
 
 
 
