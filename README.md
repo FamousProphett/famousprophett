@@ -11,7 +11,8 @@
 
 > im 8teen ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/81342bc6-659a-4ee0-a501-26f869ffd208" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/04e04630-ae0b-4797-a737-994100636d00" />
+  <img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/2951a47f-7cbb-4f47-8f94-f162ff221f8f" />
+
 
 
 > FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and morty,, postal and alot more lololol
