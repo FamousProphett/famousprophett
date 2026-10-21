@@ -1,4 +1,5 @@
-<img width="435" height="113" alt="image" src="https://github.com/user-attachments/assets/8d1053ef-02c2-4e65-a774-2e91fa53577c" />
+<img width="640" height="43" alt="image" src="https://github.com/user-attachments/assets/eba08beb-9de9-4e26-853f-2137a8263efd" />
+
 
 > HAI ... im cody / alaska ᡕᠵデᡁ᠊╾━
 
