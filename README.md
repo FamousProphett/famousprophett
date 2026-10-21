@@ -14,7 +14,8 @@
 
 > FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and morty,, postal and alot more lololol
 
-<img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/2da06fb6-827f-45da-9b83-c1a8c4e500d6" />
+<img width="1280" height="107" alt="image" src="https://github.com/user-attachments/assets/b7f3eafc-eeb4-4816-b4c5-5af06395008f" />
+
 
 
 > .⋆♱ im a super fun silly awesome guy and we should be friends...! 
