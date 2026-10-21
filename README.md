@@ -8,7 +8,8 @@
 
 > im 8teen ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/85545bef-4501-4026-8f3b-3dd901e180df" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/dc0e0709-7e3c-430a-b19d-f3b6a9087edf" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/81342bc6-659a-4ee0-a501-26f869ffd208" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/04e04630-ae0b-4797-a737-994100636d00" />
+
 
 > FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and morty,, postal and alot more lololol
 
