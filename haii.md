@@ -1,12 +1,12 @@
 <img width="435" height="113" alt="image" src="https://github.com/user-attachments/assets/8d1053ef-02c2-4e65-a774-2e91fa53577c" />
 
-> HAI ... im cody / alaska
+> HAI ... im cody / alaska ᡕᠵデᡁ᠊╾━
 
 <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/384113b5-c8a0-40fa-98db-9d921a1fc983" />
 
 
 
-> im 8teen 
+> im 8teen ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐
 
 
 <!--
