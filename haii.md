@@ -2,7 +2,8 @@
 
 > HAI ... im cody / alaska
 
- ⫘⫘⫘⫘⫘⫘<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c272b590-7d19-42f5-a9f4-94449a07dd0f" />⫘⫘⫘⫘⫘⫘
+<img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/384113b5-c8a0-40fa-98db-9d921a1fc983" />
+
 
 
 > im 8teen 
