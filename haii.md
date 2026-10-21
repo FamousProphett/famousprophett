@@ -8,6 +8,9 @@
 
 > im 8teen ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐
 
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/85545bef-4501-4026-8f3b-3dd901e180df" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/dc0e0709-7e3c-430a-b19d-f3b6a9087edf" />
+
+
 
 <!--
 **FamousProphett/famousprophett** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
