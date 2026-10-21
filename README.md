@@ -20,9 +20,7 @@
 <img width="1280" height="107" alt="image" src="https://github.com/user-attachments/assets/b7f3eafc-eeb4-4816-b4c5-5af06395008f" />
 
 
-
 > .⋆♱ im a super fun silly awesome guy and we should be friends...! 
-<!--
 
                                    <img width="904" height="904" alt="image" src="https://github.com/user-attachments/assets/837e5705-4a7c-4d05-bb38-05dccd085f33" />
 
