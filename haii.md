@@ -1,6 +1,8 @@
 <img width="435" height="113" alt="image" src="https://github.com/user-attachments/assets/8d1053ef-02c2-4e65-a774-2e91fa53577c" />
 
-> HAI ... im cody / alaska <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/a4f905a2-b6b8-4f6b-afc5-9df4dda56c84" />
+> HAI ... im cody / alaska
+
+ <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/a4f905a2-b6b8-4f6b-afc5-9df4dda56c84" />
 
 > im 8teen 
 
