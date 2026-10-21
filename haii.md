@@ -17,6 +17,7 @@ FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and mo
 
 .⋆♱ im a super fun silly awesome guy and we should be friends...! 
 <!--
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e7adc5b8-d8ba-4aa3-b4be-f7d7e51bc07e" /> 
 
 
 
