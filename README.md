@@ -10,12 +10,12 @@
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/85545bef-4501-4026-8f3b-3dd901e180df" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/dc0e0709-7e3c-430a-b19d-f3b6a9087edf" />
 
-FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and morty,, postal and alot more lololol
+> FANDOMS !11!!!!11 ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ Metalocalypse,, rick and morty,, postal and alot more lololol
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/2da06fb6-827f-45da-9b83-c1a8c4e500d6" />
 
 
-.⋆♱ im a super fun silly awesome guy and we should be friends...! 
+> .⋆♱ im a super fun silly awesome guy and we should be friends...! 
 <!--
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e7adc5b8-d8ba-4aa3-b4be-f7d7e51bc07e" /> 
 
